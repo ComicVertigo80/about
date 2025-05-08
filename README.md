@@ -44,4 +44,4 @@ What is truly meant for us will never miss.
 And we get to make space for it every single day.
 
 She hopes you find not only space for your story to share,
-but also peace and joy,too.
+but also peace and joy, too.

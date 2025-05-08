@@ -1,1 +1,4 @@
-# comicvertigo.github.io
+# About Me
+
+### Creating, laughing and coding along
+<<>>

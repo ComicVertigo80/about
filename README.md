@@ -2,7 +2,7 @@
 
 ### Creating, laughing and coding along
 
-Nicole H. would describe herself as just a funny lady (sometimes the mayor of Silly Goose town, possibly running for state rep of Geese United),
+Nicole H. would describe herself as just a funny lady (the mayor of silly goose town (soon to be state rep) and sometimes dungeon master —no, not that kind),
 but we’d have to remind her she’s also a—
 writer, podcast host, and founder of VertigoVentures LLC,
 a heart-led initiative devoted to community connection, creative storytelling, and accessible tech.

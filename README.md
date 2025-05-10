@@ -7,7 +7,7 @@ but we’d have to remind her she’s also a—
 writer, podcast host, and founder of VertigoVentures LLC,
 a heart-led initiative devoted to community connection, creative storytelling, and accessible tech.
 
-She’s the mind behind the upcoming The Creative Question podcast,
+She’s the mind behind the upcoming Creative Question podcast,
 the curator of the Curiously, Yours newsletter,
 and the architect of Tiny Moments—
 a queer community project mapping moments of meaning across Western Massachusetts.

@@ -2,7 +2,7 @@
 
 ### Creating, laughing and coding along
 
-Nicole H. would describe herself as just a funny lady (sometimes the mayor of Silly Goose town),
+Nicole H. would describe herself as just a funny lady (sometimes the mayor of Silly Goose town, possibly running for state rep of Geese United),
 but we’d have to remind her she’s also a—
 writer, podcast host, and founder of VertigoVentures LLC,
 a heart-led initiative devoted to community connection, creative storytelling, and accessible tech.
@@ -14,7 +14,7 @@ a queer community project mapping moments of meaning across Western Massachusett
 
 Nicole also builds digital tools like EventList,
 a Chrome extension currently in beta
-that lets users view Facebook events without logging in—
+that lets users view Facebook events in a minimalist fashion—
 designed to increase connection through accessibility.
 
 She is a graduate of the 1Berkshire Leadership Program,

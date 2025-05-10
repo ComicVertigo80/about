@@ -27,7 +27,7 @@ and is currently working on three books:
 — a children’s story,
 — a poetry collection,
 — and a cozy lesbian mystery,
-all aiming to launch around 2027.
+all aiming to launch around 2028.
 
 But more than her titles or projects,
 Nicole is a builder of spaces where people feel seen.
